@@ -4,7 +4,7 @@
 
 ## SMOKED SEA SALT & SUGAR TOPPING
 
-- 2/3 cup turbinado sugar
+- 2/3 cup turbinado stevia
 - 1/3 cup smoked sea salt
 
 ## SALTED CARAMEL MOCHA
